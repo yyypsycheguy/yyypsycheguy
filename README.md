@@ -1,4 +1,4 @@
-- 📫 How to reach me: ```[https://www.linkedin.com/in/yiwen-mai-b39bb4292?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app](https://x.com/newiy_mai?s=21)```
+- 📫 How to reach me: ```https://x.com/newiy_mai?s=21```
 - ⚡ Fun fact: I blog ```https://yiwensite.com/``` and I'm an artist
 
 <!---
