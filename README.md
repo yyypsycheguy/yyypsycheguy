@@ -1,4 +1,5 @@
-- 📫 How to reach me: ```https://x.com/newiy_mai?s=21```
+- How to reach me on X: ```https://x.com/newiy_mai?s=21```
+- Email reach out: yiwen.mai@student-cs.fr OR yiwen.mai@emory.edu
 - ⚡ Fun fact: I blog ```https://yiwensite.com/``` and I'm an artist
 
 <!---
